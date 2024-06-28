@@ -43,6 +43,23 @@
 </br>
 
 
+#### Bharya bharthala samvadam
+
+</br>
+
+Wife and Husband
+
+</br>
+
+Q: Which is better? speech or mind?
+
+A: mind
+
+</br>
+
+Discussion between toungue and teeth
+
+</br>
 
 
 
