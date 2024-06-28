@@ -10,21 +10,19 @@
 
 </br>
 
-| How humans neglect human life?                     |
-| -------------------------------------------------- |
-| Doing things beyond his/ her strength or ability   |
-| Eating foods that is not good for your body        |
-| Eating too much food                               |
-| Eating no food at all                              |
-| Eating stale and refregirated food                 |
-| Eating uncooked food                               |
-| Food having insects, hair                          |
-| Too sweet, sour, spice                             |
-| Too dilute food                                    |
-| Too dry food                                       |
-| Eating again after eating                          |
-| Sleeping too much in morning                       |
-| Too much fatigue                                   |
+| How humans neglect human life?                                         |
+| --------------------------------------------------                     |
+| Engaging in activities beyond one’s natural abilities or strengths     |
+| Consuming foods that are detrimental to their bodies                   |
+| Overindulging or not eating at all                                     |
+| Eating stale or refregirated food                                      |
+| Consuming uncooked food                                                |
+| Ingesting food with insects or hair                                    |
+| Consuming excessively sweet, sour, or spicy food                       |
+| Eating overly diluted or dry food                                      |
+| Repeating meals shortly after eating                                   |
+| Excessive morning sleep                                                |
+| Suffering from persistent fatigue                                      |
 
 </br>
 </br>
@@ -33,13 +31,12 @@
 
 </br>
 
-| How to die easily?                                 |
-| -------------------------------------------------- |
-| One to donate water                                |
-| One to donate food                                 |
-| One to always hep others                           |
-| One who is intrested in good deeds                 |
-| One who is always devoted on god                   |
+| How to die easily?                                                    |
+| --------------------------------------------------------------------- |
+| Generosity: Being someone who donates water and food to those in need |
+| Kindness: Always helping others                                       |
+| Good Deeds: Showing interest in acts of kindness                      |
+| Spirituality: Being devoted to god                                    |
 
 
 </br>
