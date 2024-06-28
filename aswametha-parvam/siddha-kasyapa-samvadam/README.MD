@@ -24,6 +24,27 @@
 | Too dry food                                       |
 | Eating again after eating                          |
 | Sleeping too much in morning                       |
+| Too much fatigue                                   |
+
+</br>
+</br>
+
+#### How to die easily?
+
+</br>
+
+| How to die easily?                                 |
+| -------------------------------------------------- |
+| One to donate water                                |
+| One to donate food                                 |
+| One to always hep others                           |
+| One who is intrested in good deeds                 |
+| One who is always devoted on god                   |
+
+
+</br>
+</br>
+
 
 
 
