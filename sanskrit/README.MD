@@ -7,6 +7,7 @@
 | एषः                  | eṣha                   | this                     |
 | इह                  | iha                    | in this world            |
 | पाप्मन्                | pāpmān                 | sin                      |
+| मत्सर                | matsara                 | jealous                  |
 | विद्या                 | vidya                  | knowledge                |
 | विद्धि                 | viddhi                 | know                     |
 | वैरिण                | vairiṇam               | enimity                  |
