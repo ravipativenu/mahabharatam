@@ -12,4 +12,5 @@
 | विद्धि                 | viddhi                 | know                     |
 | वैरिण                | vairiṇam               | enimity                  |
 | समुद्भव               | samudbhavaḥ            | source or origin         |
+| संसिद्ध               | sansiddhaḥ            | attain perfection         |
 
